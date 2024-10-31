@@ -1,0 +1,3 @@
+- Push the frontier in Human-AI hybrid system
+- In the algorithmic trading field
+- Also, mind - body harmony is extremely important
